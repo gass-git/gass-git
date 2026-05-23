@@ -1,1 +1,1 @@
-And... that's the way the 🍪 crumbles..
+And that's how the 🍪 crumbles..
