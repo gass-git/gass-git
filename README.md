@@ -1,1 +1,1 @@
-And that's how the 🍪 crumbles..
+And that's how the cookie crumbles..
